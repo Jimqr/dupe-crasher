@@ -2,4 +2,4 @@
 
 Do not share to everyone!
 
-FUCK PRESTON!
+F*CK PRESTON!
